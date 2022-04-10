@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KhadijaMammadova
-- 👀 I’m interested in mobile development
+- 👀 I’m interested in mobile app development
 - 🌱 I’m currently learning flutter/dart
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://www.linkedin.com/in/khadija-mammadova-067813218/
