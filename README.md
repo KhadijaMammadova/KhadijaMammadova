@@ -15,7 +15,7 @@
 
 - 📫 How to reach me https://www.linkedin.com/in/khadijamammadova/
 
-- 📝 Have a look at my resume and get to know me https://drive.google.com/file/d/1yMFW_ipR-RjgyyUq_r-J0UWD-MnVwWWq/view?usp=sharing
+- 📝 Have a look at my resume and get to know me [https://drive.google.com/file/d/1yMFW_ipR-RjgyyUq_r-J0UWD-MnVwWWq/view?usp=sharing](https://drive.google.com/file/d/1-uPBlZZ7xdeejJIb3KdTYjUvgieNAd3B/view?usp=sharing)
 
 - ⚡ Fun fact **I am an Arabic Translation and Interpretation Student**
 
