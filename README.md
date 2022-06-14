@@ -13,7 +13,9 @@
 
 - 📝 I sometimes write articles on [https://medium.com/@khadijas_corner](https://medium.com/@khadijas_corner)
 
-- 📫 How to reach me **https://www.linkedin.com/in/khadijamammadova/**
+- 📫 How to reach me https://www.linkedin.com/in/khadijamammadova/
+
+- 📝 Have a look at my resume and get to know me https://drive.google.com/file/d/1yMFW_ipR-RjgyyUq_r-J0UWD-MnVwWWq/view?usp=sharing
 
 - ⚡ Fun fact **I am an Arabic Translation and Interpretation Student**
 
